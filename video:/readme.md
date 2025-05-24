@@ -1,5 +1,5 @@
 - [Will The Velowave Ranger Fat Tire E-Bike Change My Delivery Game??](https://youtu.be/kEzNr5jKICA)
-- [40 Most Affordable Electric Bikes Under $500](url)
+- [40 Most Affordable Electric Bikes Under $500](https://youtu.be/_PiwDMsba_s)
 - [The Truth about FAT Tire Ebikes: Sidestep the Bullsh💩](https://youtu.be/jT0sXETZHfw)
 - [ECOCOGY 4000W Peak 5000W Dual Motor Electric Bike for Adults B0DQD6PT1R](https://youtu.be/eXB9QttQaTo)
 - [The Best AFFORDABLE Dual Battery FULL Suspension EBike! AKEZ King Kong Review](https://www.youtube.com/shorts/bsTcyivm3nQ)
